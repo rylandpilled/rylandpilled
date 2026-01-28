@@ -23,4 +23,4 @@
 
 <img width="1000" height="48" alt="image" src="https://github.com/user-attachments/assets/9000ff51-5b0a-4a4c-b04a-c7cceac3b8ac" />
 
-    ❛❛ I'm not the one who should've been saved, my divinity has been denied!   ───〃⟡ 
+    ❛❛ Hunderttausend kids for me . . . Chances will passing by, my dear !   ───〃⟡ 
